@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @0xaabtech
+- 👀 I’m interested in blockchain
+- ⚡ Fun fact: I love travelling
